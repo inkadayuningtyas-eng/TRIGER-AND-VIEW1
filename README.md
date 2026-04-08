@@ -1,0 +1,1 @@
+# TRIGER-AND-VIEW1
